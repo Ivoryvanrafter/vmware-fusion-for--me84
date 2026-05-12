@@ -1,4 +1,4 @@
-
+Parallels Desktop for macOS new Helper - clipboard-manager and search-enhancement offers the most advanced Parallels Desktop for macOS helper, with clipboard-manager and
 
 
 
